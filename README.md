@@ -14,4 +14,4 @@ For now it works only with iPhone 6s, with 3D touch.
 
 Have fun! :)
 
-P.S. Send me a message about your fake stories. I am curious what you will come up with.
+p.s. Send me a message about your fake stories. I am curious what you will come up with.
